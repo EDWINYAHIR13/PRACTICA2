@@ -1,0 +1,2 @@
+# PRACTICA2
+![image](https://github.com/EDWINYAHIR13/PRACTICA2/assets/148461746/d7e8f811-475b-4409-83a0-e8d95efe931f)
